@@ -1,0 +1,2 @@
+----- pasta para coisas aleatorias ------
+ 
